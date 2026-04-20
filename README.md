@@ -10,6 +10,6 @@ NAT
 DHCP
 és még sok más:)
 
-itt van a link hozzá:
+itt van a link hozzá: mmeg teszek  hozzá háózatot is.
 
 https://drive.google.com/drive/folders/1Sl6yMTtVITIYnWwgVeSZBmRoS5HnSyyN?usp=sharing
